@@ -213,4 +213,4 @@ DIALux is available as a complete free version, with all features and updates in
 Ready to elevate your lighting design projects? Start your DIALux journey today with a **free download**!
 
 ---
-**Last updated:** 2026-09-21 07:16:50 UTC
+**Last updated:** 2026-09-21 14:33:56 UTC
